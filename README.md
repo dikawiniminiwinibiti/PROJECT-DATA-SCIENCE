@@ -12,3 +12,6 @@ Berikut daftar kelompok kami :
 | ------ | ------ |
 | Mahardika Rahman Rizky | 123180178 |
 | Pratiwi Sutrisnowati | 123180153 |
+
+
+NB : Jangan lupa autentifikasinya di ketik 1 ya :relaxed: 
